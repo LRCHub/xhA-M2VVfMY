@@ -1,4 +1,4 @@
-# BAD HOP – BAD HOP - NEW ASIAN feat. Vingo & OZworld(Official Lyric Video)
+# BAD HOP – New Asian（feat. Vingo、OZworld）
 
 > **歌詞登録ステータス：同期歌詞あり**
 
